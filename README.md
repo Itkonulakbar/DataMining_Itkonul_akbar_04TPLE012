@@ -1,1 +1,0 @@
-# DataMining_Itkonul_akbar_04TPLE012
